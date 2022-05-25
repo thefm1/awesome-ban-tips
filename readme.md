@@ -18,12 +18,13 @@ As somebody who has gotten banned on Pradosh's server, I aim to provide you with
 
 As somebody who has gotten banned from Pradosh's server, I am able to assure you that it's trivial to get banned.
 
-However, for a quick and easy ban method, I encourage you to do the following:
+I encourage you to do the following:
 
 ```
 [You]: Pakistan Zindabad.
 ```
 
 Pradosh is a patriotic Indian.  This method can get you banned instantly. 
-As of 2022, this method is unpatched and still works.
+
+> *__NOTE:__* As of 2022, this method is unpatched and still works.
 
