@@ -16,7 +16,7 @@ As somebody who has gotten banned on Pradosh's server, I aim to provide you with
 ----
 
 
-As somebody who has gotten banned from Pradosh's server, I am able to assure you it's trivial to get banned.
+As somebody who has gotten banned from Pradosh's server, I am able to assure you that it's trivial to get banned.
 
 However, for a quick and easy ban method, I encourage you to do the following:
 
