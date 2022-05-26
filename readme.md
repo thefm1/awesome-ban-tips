@@ -1,10 +1,8 @@
 
 
-# How to get banned off Pradosh's discord server.
+# The indefinite guide to getting banned off Pradosh's discord server.
 
-This guide is an indefinite solution to this problem.
-
-As somebody who has gotten banned on Pradosh's server, I aim to provide you with a clear linear path to getting banned from his server.
+> *Purpose* As somebody who has gotten banned on Pradosh's server, I aim to provide you with a clear linear path to getting banned from his server.
 
 
 **Table of contents:**
@@ -15,8 +13,7 @@ As somebody who has gotten banned on Pradosh's server, I aim to provide you with
  What should I say?
 ----
 
-
-As somebody who has gotten banned from Pradosh's server, I am able to assure you that it's trivial to get banned.
+Pradosh is a patriotic Indian. This fact allows us to exploit a vulnerability, which is bringing to light the political and social tensions between Pakistan and India.
 
 I encourage you to do the following:
 
@@ -24,7 +21,7 @@ I encourage you to do the following:
 [You]: Pakistan Zindabad.
 ```
 
-Pradosh is a patriotic Indian.  This method can get you banned instantly. 
+These two words, will allow you will play a powerful effect in the immediate explusion of you from the the server 
 
 > *__NOTE:__* As of 2022, this method is unpatched and still works.
 
