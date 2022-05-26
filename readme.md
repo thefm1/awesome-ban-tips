@@ -2,7 +2,7 @@
 
 # The indefinite guide to getting banned off Pradosh's discord server.
 
-> *Purpose* As somebody who has gotten banned on Pradosh's server, I aim to provide you with a clear linear path to getting banned from his server.
+> *Purpose*:  As somebody who has gotten banned on Pradosh's server, I aim to provide you with a clear linear path to getting banned from his server.
 
 
 **Table of contents:**
